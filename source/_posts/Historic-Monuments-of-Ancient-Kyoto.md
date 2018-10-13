@@ -1,0 +1,7 @@
+---
+title: Historic Monuments of Ancient Kyoto
+date: 2018-10-13 09:58:11
+tags:
+---
+
+The [UNESCO](https://en.wikipedia.org/wiki/UNESCO) [World Heritage Site](https://en.wikipedia.org/wiki/World_Heritage_Site) **Historic Monuments of Ancient Kyoto (Kyoto, Uji and Otsu Cities)** encompasses 17 locations in Japan within the city of Kyoto and its immediate vicinity. The locations are in three cities: [Kyoto](https://en.wikipedia.org/wiki/Kyoto) and [Uji](https://en.wikipedia.org/wiki/Uji,_Kyoto) in [Kyoto Prefecture](https://en.wikipedia.org/wiki/Kyoto_Prefecture); and [Ōtsu](https://en.wikipedia.org/wiki/%C5%8Ctsu,_Shiga) in [Shiga Prefecture](https://en.wikipedia.org/wiki/Shiga_Prefecture); Uji and Ōtsu border Kyoto to the south and north, respectively. Of the monuments, 13 are [Buddhist](https://en.wikipedia.org/wiki/Buddhism)temples, three are [Shinto shrines](https://en.wikipedia.org/wiki/Shinto_shrines), and one is a [castle](https://en.wikipedia.org/wiki/Japanese_castle). The properties include 38 buildings designated by the Japanese government as *National Treasures*, 160 properties designated as *Important Cultural Properties*, eight gardens designated as *Special Places of Scenic Beauty*, and four designated as *Places of Scenic Beauty*. UNESCO listed the site as World Heritage in 1994.
